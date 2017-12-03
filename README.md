@@ -3,17 +3,17 @@
 - dreadmaul & Bereneces - Aakhu
 - Bereneces & dreadmaul - Intercontinental
 
-Release date: 15 Oct 2017
-Mastering: http://www.binaryfeedback.com/
-Cover art: Dasha Efflorescence & Lums2
+**Release date:** 15 Oct 2017<br>
+**Mastering:** http://www.binaryfeedback.com/<br>
+**Cover art:** Dasha Efflorescence & Lums2
 
-Also listen on many streaming services, including:
+**Also listen** on many streaming services, including:
 
 - TIDAL: https://listen.tidal.com/album/81137396
 - Spotify: https://open.spotify.com/album/5mc57JJUgsxWdOazCWNloA
 - Apple Music / iTunes: https://itunes.apple.com/mx/album/aakhu-intercontinental-single/1312610897
 
-If you liked the release, please consider becoming our patron on Patreon! Read on how the support works and why it’s important: https://www.patreon.com/vykhodsily_podcast
+**If you liked** the release, please consider becoming our patron on Patreon! Read on how the support works and why it’s important: https://www.patreon.com/vykhodsily_podcast
 
 ## Descriptoin
 
